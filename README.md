@@ -10,4 +10,3 @@
 
 Я знаю, истина в вине.
 
-! [я] (https://images.app.goo.gl/d1XEmajiMuiWWz7X8)
